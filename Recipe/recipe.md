@@ -1,0 +1,1 @@
+preheat oven to 350 degrees, put pizza crust on a oven tray, put sauce on pizza crust, add cheese on top of sauce, bake until warm, remove from oven and enjoy
